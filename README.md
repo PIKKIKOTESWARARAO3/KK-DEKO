@@ -1,1 +1,1 @@
-# KK-DEKO
+# KK-DEKO.
